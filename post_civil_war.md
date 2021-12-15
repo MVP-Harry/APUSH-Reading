@@ -5,4 +5,5 @@
 ## Section 2 (Kennedy Chapter 25, 579 - 588)
 
 ## Section 3 (Kennedy Chapter 26, 603 - 616)
+This section talks about rural expansion.
 

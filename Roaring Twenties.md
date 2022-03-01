@@ -187,3 +187,34 @@
 	* 4 million workers were jobless
 	* 5000 banks collapsed, along with the savings of thousands of honest citizens
 	* Life was miserable
+
+## Hooked on the Horn of Plenty
+- Causes of the depression
+	* Business cycle downturn after the economic prosperity in the 20s
+	* Global factors
+		- As US, Britain, France and Germany returned to gold standard, their economies were largely tied together. In 1931, the bankrupt of a prominent Vienna bank triggered chain reactions in Europe that ultimately affected the US
+		- War debts
+		- High tariffs (Hawley-Smoot) that disrupted trading
+- Hooverville
+
+## Rugged Times for Rugged Individualists
+- At first, Hoover refused to use federal funds to fight the depression
+	* He believed in private enterprises as well as individualisms that were rooted in US traditions
+- Hoover compromised later and assisted banks, credited corporations, in the hope that the restoration of economy on the top level would restore the entire economy
+
+## Hoover Battles the Great Depression
+- Public Work Projects
+	* Most notably, the Hoover Dam
+- Reconstruction Finance Corporation (RFC)
+	* With a budget of 0.5 billion dollars, it was designed to shore up insurance companies, banks, railroads and agricultural companies
+	* No loan to individuals
+	* Helped big businesses
+- Norris-La Guardia Anti-Injunction Act
+	* Outlawed anti-union contracts and protected labor
+
+## Routing the Bonus Army in Washington
+- Impoverished veterans marched on Washington and formed the "Bonus Expeditionary Force (BEF)"
+- Hoover ordered evictions of the unwanted guests
+	* Executed by MacArthur
+	* More sever than Hoover had planned
+
